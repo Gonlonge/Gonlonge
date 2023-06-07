@@ -1,1 +1,1 @@
-Hi 👋, I'm studying as a frontend developer and I live in Norway, Stavanger.
+Hi there👋!  I'm a passionate individual with a strong interest in technology. I'm constantly driven by curiosity and a desire to stay up-to-date with the latest industry trends. I actively seek out opportunities to expand my knowledge and explore emerging technologies.
